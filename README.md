@@ -1,2 +1,2 @@
 # hbd-olawale
-Happy Birth to Bro wale - Timi's brother 
+Happy Birthday to Bro wale - Timi's brother 
